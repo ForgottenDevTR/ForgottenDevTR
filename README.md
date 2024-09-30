@@ -4,4 +4,4 @@
 Projelerinizi bana discord dan yazın, bende yapıyım.
 
 ## İletişim
-Discord Grubumuz : https://
+Discord Grubumuza katılmak için [tıkla](https://discord.gg/rRmtN4DzX9)!
