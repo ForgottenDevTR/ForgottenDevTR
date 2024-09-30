@@ -3,5 +3,8 @@
 `C, C#, C++, Python, JavaScript` ve dahası itinayla yapılır!
 Projelerinizi bana discord dan yazın, bende yapıyım.
 
-## İletişim
+## Bize katılın
 Discord Grubumuza katılmak için [tıkla](https://discord.gg/rRmtN4DzX9)!
+Roblox Grubumuza katılamk için [tıkla]([https://discord.gg/](https://www.roblox.com/tr/groups/17156782/YEB34-Studios))!
+
+### Hep birlikte kodlayabiliriz!
